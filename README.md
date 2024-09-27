@@ -1,6 +1,6 @@
-# Halo semua! 
+# HELLO EVERYONE
 
-Perkenalkan nama saya **Muhammad Lukmannulhakim**.<br>
+Perkenalkan nama saya **MUHAMMAD LUKMANNULHAKIM**.<br>
 
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/muhammad-lukmannulhakim/)ku ya.
 
